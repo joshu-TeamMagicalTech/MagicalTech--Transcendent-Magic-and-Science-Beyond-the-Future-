@@ -1,5 +1,5 @@
 # MagicalTech--Transcendent-Magic-and-Science-Beyond-the-Future-
-Development started in 1.19!
+There is no way Team MagicalTech has that kind of technology.
 --
 April Fool's Day!
 
